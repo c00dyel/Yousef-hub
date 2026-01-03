@@ -1,2 +1,0 @@
-# Yousef-hub
-Auto dash
